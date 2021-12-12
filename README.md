@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SlaveyaNe
+- 👋 Hi, I’m Slaveya
 - 👀 I’m interested in Books 🤍
 - 🌱 I’m currently learning Hebrew
 - 💞️ I’m looking to collaborate on Poetry
